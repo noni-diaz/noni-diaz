@@ -1,5 +1,5 @@
 - 👋 Hola, soy @noni-diaz
-- 👀 Estoy interesade en la ciencia y la tecnología, principalmente en la Biología.
+- 👀 Estoy interesadx en la ciencia y la tecnología, principalmente en la Biología.
 - 🌱 Actualmente estudio Biología en la UANL (3° semestre).
 - 💞️ Me interesa trabajar en proyectos de investigación y hacer labor de voluntariado.
 - 📫 Pueden contactarme en mi correo personal danonnie00@gmail.com
